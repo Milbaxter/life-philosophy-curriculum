@@ -100,5 +100,3 @@ Highest-leverage things to nail, ranked:
 4. **3-5 SEO comparison pieces** — Long-tail content that compounds and doubles as authority-building.
 
 Everything else is optimization on top of those four.
-
-<!-- Author test commit -->
