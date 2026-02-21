@@ -101,6 +101,4 @@ Highest-leverage things to nail, ranked:
 
 Everything else is optimization on top of those four.
 
-<!-- Final identity test -->
-
 <!-- Author test commit via SSH -->
