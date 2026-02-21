@@ -1,5 +1,7 @@
 # Life Philosophy Curriculum — Product Plan
 
+> Upgrade your mental operating system with the timeless code of the masters.
+
 ## One-liner
 A curated audio + AI platform that teaches adults how humanity's greatest thinkers answered life's hardest questions — 15 min/day, at their own pace.
 
