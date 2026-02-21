@@ -106,6 +106,19 @@ Framing episode. Anxiety is not a bug — it's a feature of being conscious, fre
 
 ---
 
+### Aristotle (384-322 BCE) — Virtue Ethics
+**Core insight:** Anxiety arises from living out of alignment with your nature. The cure is not to eliminate fear but to cultivate the right relationship with it through habit and practical wisdom.
+
+- The Doctrine of the Mean — every emotion (including fear) has an excess, a deficiency, and a virtuous middle. Too much fear = cowardice. Too little = recklessness. Courage is feeling fear appropriately and acting well despite it.
+- Phronesis (practical wisdom) — anxiety often signals you lack a skill, virtue, or understanding you need. The answer is to develop it through practice, not suppress the feeling.
+- Catharsis — Aristotle argued that experiencing fear and pity through tragic art purges those emotions safely. This is arguably the first articulation of "exposure therapy."
+- Habituation over willpower — "We become brave by doing brave acts." You don't think your way out of anxiety; you practice your way out until calm action becomes character.
+- Eudaimonia (flourishing) — anxiety dissolves when you're living in accordance with your purpose and exercising your highest capacities. The anxious life is the unlived life.
+
+**Key practice:** Identify one thing anxiety stops you from doing. Do a small version of it today. Repeat tomorrow. Aristotle says the habit will reshape your character before your thoughts catch up.
+
+---
+
 ### Soren Kierkegaard (1813-1855) — Existentialism
 **Core insight:** Anxiety is the "dizziness of freedom." It emerges because you have genuine choices and the burden of making them. This is not a disorder — it's the price of being fully alive.
 
