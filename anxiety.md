@@ -71,6 +71,19 @@ Framing episode. Anxiety is not a bug — it's a feature of being conscious, fre
 
 ---
 
+### Michael Singer (b. 1947) — The Untethered Soul
+**Core insight:** You are not your thoughts. There is a voice in your head that never shuts up — narrating, worrying, judging — and you have been so identified with it that you forgot you're the one *listening* to it. Anxiety is what happens when you mistake that voice for you.
+
+- The "roommate" metaphor — imagine if someone followed you around all day saying everything your inner voice says. You'd think they were insane. Yet you obey that voice without question.
+- Your heart "closes" around painful experiences to protect itself, creating energy blockages (samskaras) that manifest as chronic anxiety. Healing means learning to stay open when everything in you wants to close.
+- "Do not let anything that happens in life be important enough that you're willing to close your heart over it"
+- The seat of the witness — you can learn to sit behind your thoughts and emotions, watching them pass like clouds, rather than being dragged around by them
+- Anxiety is stored energy trying to release. When old fear surfaces, don't push it down and don't act on it — just relax and let it pass through you.
+
+**Key practice:** Next time anxiety arises, try this: instead of engaging with the anxious thought, notice that you're *aware* of the anxious thought. That awareness — the one watching — is who you actually are. Relax your heart, relax your shoulders, and let the energy pass through.
+
+---
+
 ## Week 3 — Western Answers
 
 ### Epictetus (c. 50-135 CE) — Stoicism
